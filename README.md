@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @GaddafiAbemthu
+- 👀 I’m interested in chess and CRM's
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on creating a CRM
+- 📫 How to reach me gaddafirosemary@gmail.com
+- 😄 Pronouns: He\Him\The one
+- ⚡ Fun fact - I am South African and a part-time pornstar
+--->
